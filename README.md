@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 My name is Ruben, I am a French developper.<br>🤝 Co-Founder of RCorp. <br>🌱 Studying at ESIEA engineering school. <br>💬 You can contact me anytime, i'll answer as soon as possible.
+👨‍💻 My name is Ruben, I am a French developper.<br>🤝 Co-Founder of RCorp. <br>🌱 Studying in Bachelor at EFREI engineering school. <br>💬 You can contact me anytime, i'll answer as soon as possible.
 
 
 # 🌐 Socials:
